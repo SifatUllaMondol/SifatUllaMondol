@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SifatUllaMondol
-- 👀 I’m interested in simplification.
+- 👀 I’m interested in wev development.
 - 🌱 I’m currently learning developing and programming.
 - 📫 How to reach me ...whatsapp:01644804427.
 
